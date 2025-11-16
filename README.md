@@ -1,2 +1,1 @@
-
-Criei um README completo e profissional em português com todas as seções importantes: descrição do projeto, funcionalidades, instruções de instalação, estrutura, e informações para contribuidores. Você pode personalizar as seções com suas informações específicas, como nome do projeto, URLs e autor!
+https://v0.app/chat/gym-workout-site-rlglq4OucwW?b=b_46sMVAgtv8E&path=%2F
